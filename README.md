@@ -1,2 +1,2 @@
 # delux.wtf
-ok
+why tf u looknig here bro? instead go fucking donate to me bruh!!!!
